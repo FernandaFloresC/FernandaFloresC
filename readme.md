@@ -12,5 +12,5 @@
 *Si quieres contactarme déjame un correo  **fernanda.flores.c.99@gmail.com*** 📧
  *ó sígueme por **[Linkedin](https://www.linkedin.com/in/ferfloresc/)*** 😉
 
- ## *¡Gracias por llegar hasta aquí!* ## Besitos 😙
+ ## *¡Gracias por llegar hasta aquí!*  Besitos 😙
 ![coding](tiernito.png) 
